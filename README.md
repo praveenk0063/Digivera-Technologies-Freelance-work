@@ -1,1 +1,0 @@
-# Digivera-Technologies-Freelance-work
